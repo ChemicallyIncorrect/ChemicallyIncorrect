@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ChemicallyIncorrect
-- 👀 I’m interested in Procrastinating my degree.pdf, ~randomly getting heated~ and *working with A+ co-efficient of performance*
-- 🌱 I’m currently learning How to tackle different *phases* of humans and humanoids
-- 💞️ I’m looking to collaborate on BeingThe~saturated~
+- 👀 I’m interested in procrastinating my degree.pdf and *working with A+ co-efficient of performance*
+- 🌱 I’m currently learning How to tackle different *forms* of humans and humanoids
+- 💞️ I’m looking to collaborate on BeingThe~Sane~
 - 📫 How to reach me ➡soumya.biswas2002@gmail.com
 
 <!---
